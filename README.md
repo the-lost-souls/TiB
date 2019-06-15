@@ -1,4 +1,4 @@
-# The Lost Souls - TIß
+# The Lost Souls - TIß (1994)
 [![screenshot](https://the-lost-souls.github.io/images/thumbnails/tib.png)](https://youtu.be/Qd8WPVmYhX8) 
 
 
